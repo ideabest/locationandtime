@@ -19,3 +19,8 @@ As well as
 Time, time. And location, location.
 Time and space are both fixed and non-fixed.
 After years of research, I came to realize that this hypothesis is
+
+
+
+E-Mail:kernelworld@outlook.com //// Mobile:00989150695740//weblog:aramesh1.blog.com
+ 
